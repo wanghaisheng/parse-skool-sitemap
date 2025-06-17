@@ -1,3 +1,2 @@
-WebSim Vibe Coding Starter
+https://www.skool.com find the money making community
 
-all tools are free 
